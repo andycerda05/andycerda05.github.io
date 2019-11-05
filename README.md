@@ -1,5 +1,5 @@
 # andycerda05.github.io
-**Welcome to the ultimate Fantasy Football cheatsheet!**
+**Welcome to the Ultimate Fantasy Football cheatsheet!**
 
 The best places to play NFL Fantasy Football are:
 - ESPN Fantasy Games (https://www.espn.com/fantasy/)
